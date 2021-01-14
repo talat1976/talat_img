@@ -1,0 +1,1 @@
+# talat_img
